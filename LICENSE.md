@@ -1,4 +1,4 @@
-
+ProtonVPN best Plugin: no-logs-policy & kill-switch is the best ProtonVPN plugin, featuring no-logs-policy and kill-switch. Secure, fast, and optimized for privacy.
 
 
 
